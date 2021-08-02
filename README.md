@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @mrneuro
+- 👋 Hi, I’m @mrneuro.
